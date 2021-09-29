@@ -1,2 +1,2 @@
 Ethan Meeker
-The name is Ethan Meeker
+The name is Ethan Meeker I love video games (nintendo mainly) and anything horror related (horror movies, horror games, haunted atractions, scary books, etc). My favorite pokemon is Excadrill. My smash bros main is Pac-Man and I secondary Palutena. My social security number is 111-11-1111, my first grade teachers name was Mrs. Monster, my favorite pet was my pet dinosaur Carrot, my mother's maiden name was beeswax, and my credit card is 1234-1234-1234-1235, the experation date is 13/99, and the CVV is 8008. 
